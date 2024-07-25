@@ -11,3 +11,5 @@ Meu nome é ingrid Andreassy
 Você pode entrar em contato comigo 📬
 
 Ingri.rodrigues.luz@escola.pr.gov.br
+
+![](https://media.tenor.com/s73DO7WUxFMAAAAM/penelope-pitstop-60s.gif)
