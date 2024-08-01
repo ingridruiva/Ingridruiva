@@ -8,8 +8,8 @@ Meu nome é ingrid Andreassy
 
 •Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos 
 
-### Você pode entrar em contato comigo 📬
+### Você entrar em contato comigo 📬
 
-Ingri.rodrigues.luz@escola.pr.gov.br
+Ingrid.rodrigues.luz@escola.pr.gov.br
 
 ![](https://media.tenor.com/s73DO7WUxFMAAAAM/penelope-pitstop-60s.gif)
